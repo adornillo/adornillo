@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @adornillo
 - 👀 I’m interested in reenchanting✨ the world
 - 🌱 I’m currently learning how to program!
-- 💞️ I’m looking to use creativity to create and design cool things :)
+- 💞️ I’m looking to show myself how far I can go :)
 - 📫 You can reach me on twitter (link in profile)
 
 <!---
